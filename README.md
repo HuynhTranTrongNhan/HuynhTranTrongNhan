@@ -2,4 +2,4 @@
 - 👀 I’m interested in the .NET framework.
 - 🌱 I’m currently learning must as possible
 - 💞️ I’m collaborating with AZAHoldings (https://wma.com.vn/AZAHoldings/htmls/home.html)
-- 📫 Need website or app - Contact me through email: nhanhtt1@outlook.com
+- 📫 Need website or app - Contact me through email: huynhlamsolutionscompany@gmail.com
